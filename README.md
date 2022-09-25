@@ -1,0 +1,1 @@
+# templat-for-online-training-center
